@@ -1,3 +1,3 @@
 <p align="center">
-<img width="555" height="733" alt="image" src="https://github.com/user-attachments/assets/5c0633a1-a0ca-4566-bc86-1ba8de9465b7" />
+<img width="380" height="390" alt="image" src="https://github.com/user-attachments/assets/599f7a6b-072e-445f-a1de-71e0e4dac0f8" />
  <h6> PFP ART BY @j4mmyz777 ON DISCORD :-3</h6>
