@@ -12,3 +12,6 @@
 [THE CRO!!](https://github.com/TheHuntersHusband)
  
 [rewards!! :-D](https://github.com/Ponytowns-rewards)
+
+ <p align="center">
+<img width="320" height="320" alt="crystal king2_Dance 1_2026-09-19-20-21-40" src="https://github.com/user-attachments/assets/64262517-1926-4e07-9727-ae4f8bc7bac3" />
