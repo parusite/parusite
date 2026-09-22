@@ -8,11 +8,11 @@
 <p align="center">
 <img width="1898" height="1099" alt="image" src="https://github.com/user-attachments/assets/38ab7c00-7a9b-4756-bbc6-f4f3b3f46a63" />
 <sub> crothers from other mothers!!!!!</sub>
-
-[THE CRO!!](https://github.com/TheHuntersHusband)
+ 
+ [THE CRO!!](https://github.com/TheHuntersHusband)
  
 [rewards!! :-D](https://github.com/Ponytowns-rewards)
 
  <p align="center">
-<img width="1039" height="715" alt="image" src="https://github.com/user-attachments/assets/0f91ce3f-eed2-4b09-89a2-a4e32d3a8290" />
+<img width="996" height="693" alt="image" src="https://github.com/user-attachments/assets/a74cf101-c42e-4745-856a-e257039917ca" />
 <sub>overBAE i love u mister beaastt.. i love u forever and ever..../ref</sub>
