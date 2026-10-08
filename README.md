@@ -14,5 +14,3 @@
 [rewards!! :-D](https://github.com/Ponytowns-rewards)
 
  <p align="center">
-<img width="996" height="693" alt="image" src="https://github.com/user-attachments/assets/a74cf101-c42e-4745-856a-e257039917ca" />
-<sub>overBAE i love u mister beaastt.. i love u forever and ever..../ref</sub>
