@@ -14,5 +14,3 @@
 [rewards!! :-D](https://github.com/Ponytowns-rewards)
 
  <p align="center">
-<img width="800" height="451" alt="ezgif-4d38fc5bed5d60d4" src="https://github.com/user-attachments/assets/777b5a14-5e56-4218-bcd0-b6f67c430043" />
-
